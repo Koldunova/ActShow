@@ -1,1 +1,0 @@
-# vitebsk-energo.github.io
